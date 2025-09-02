@@ -1,16 +1,3 @@
-hii friends 
-this is your omkar 
-hii what happened
-kjfqnqjnq
-qljne
-eqljnvvckmc
-qkljnjkv
- omkar
-
-
-
-
-
-
-
- omkarv
+hiii 
+this is omkar from linux 
+what we are doing is to make new project add run it on .
